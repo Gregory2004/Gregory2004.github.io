@@ -1,2 +1,2 @@
-# Gregory2004.github.io
+# Георгий Паранин
 First
